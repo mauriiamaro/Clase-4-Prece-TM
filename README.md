@@ -11,4 +11,6 @@ Este contenido aborda la intervención del preceptor en el ámbito escolar a par
 *TARJETAS DIDÁCTICAS / FICHAS: con conceptos fundamentales relacionados con el rol del preceptor, acompañamiento, cuidado, escucha, convivencia, vulnerabilidad, intervención, prevención y responsabilidad institucional. También incluir situaciones hipotéticas escolares, preguntas reflexivas y actividades para completar frases vinculadas al rol del preceptor y su actuación ante situaciones complejas.
 *INFOGRAFÍA GENERAL: que sintetice el contenido del trabajo, destacando la importancia del preceptor como figura de acompañamiento, la detección temprana de problemáticas, la escucha y la contención, la intervención responsable, la construcción de vínculos de confianza y el trabajo articulado con los distintos actores de la comunidad educativa.
 MATERIAL DE REFERENCIA: Trabajo de prácticas profesionales sobre el rol del preceptor, el acompañamiento de una estudiante y la intervención ante una situación de vulnerabilidad en el contexto escolar.
+
 DEJO LINK [[CUADERNO](https://notebook.google.com/notebook/1f169989-9ceb-4084-8a40-71c9c6436a95)]
+
